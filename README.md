@@ -1,1 +1,0 @@
-# AKINCI-PORTFOY
